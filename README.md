@@ -1,0 +1,1 @@
+# Vers-o-1.0-C-psula-do-Tempo-Digital-
